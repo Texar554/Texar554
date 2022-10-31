@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Texar554
+- 👀 I’m interested in Marvel, Star Wars, games, coding and other science and tech related stuff.
+- 🌱 I’m currently learning Computer Science and coding
+- 📫 How to reach me - Email - paradkarpranav20044@gmail.com
