@@ -2,3 +2,4 @@
 - 👀 I’m interested in Marvel, Star Wars, games, coding and other science and tech related stuff.
 - 🌱 I’m currently learning Computer Science and coding
 - 📫 How to reach me - Email - paradkarpranav20044@gmail.com
+                      - Website - https://paradkarpranav2004.wixsite.com/texarindustries
